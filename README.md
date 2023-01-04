@@ -1,1 +1,1 @@
-# imphaleducarre.com
+# imphaleducare.com
